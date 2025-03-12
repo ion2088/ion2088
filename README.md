@@ -6,4 +6,4 @@ I previously worked as a quant developer at a hedge fund in London, then built a
 
 You can reach me here:
 - [Twitter](https://x.com/firedvst)
-- ion2088@proton.me
+- firedvst@gmail.com
